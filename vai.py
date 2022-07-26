@@ -1,16 +1,13 @@
 >>>>>dev one
 
 dfsff
-this is vaibhav vinodrao patil 
-  sdfbsjkskas
-bhavaninnagar tak walwa dist 
-sangl 523232i 
+  sdfbsjksgl 523232i 
 
 near raviraj gfdfgsf  hotel mohite mala 
->>>>>dev two
+>>>>>dgsfsfsddedgfsfv two
 
-right side of karad tasgoan road
- 
+right sidefgsgfs of karad tasgoan road
+ dgsf
 
 flat no  five  rgtaodgfdgfsgf plaza near vishal mart
 
