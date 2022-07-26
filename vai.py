@@ -1,4 +1,4 @@
-
+>>>>>dev one
 
 this is vaibhav patil 
 
@@ -6,6 +6,7 @@ bhavaninnagar tak walwa dist
 sangli 
 
 near raviraj  hotel mohite mala 
+>>>>>dev two
 
 right side of karad tasgoan road
  
