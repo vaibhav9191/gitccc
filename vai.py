@@ -1,18 +1,19 @@
 >>>>>dev one
 
-this is vaibhav patil 
-
+dfsff
+this is vaibhav vinodrao patil 
+  sdfbsjkskas
 bhavaninnagar tak walwa dist 
-sangli 
+sangl 523232i 
 
-near raviraj  hotel mohite mala 
+near raviraj gfdfgsf  hotel mohite mala 
 >>>>>dev two
 
 right side of karad tasgoan road
  
 
-flat no  five  rgtao plaza near vishal mart
+flat no  five  rgtaodgfdgfsgf plaza near vishal mart
 
 second floor  near above 
-umeshraj photography
+
 
